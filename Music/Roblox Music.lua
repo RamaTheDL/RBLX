@@ -1,0 +1,492 @@
+--[[
+AUDIO LIST MADE AND LEAKED BY AUDIOS HEAVEN
+
+🌍 UNIVERSAL/PUBLIC AUDIOS 2023 ( YOU DONT NEED TO JOIN A GROUP AND EVERYONE CAN HEAR THE AUDIOS ! )
+---------------------------------------------
+⭐ .gg/audios
+---------------------------------------------
+#GuestOnTop
+-------------------------------------------
+By (jujufalls)
+🆕 jugsta - motion 14884816658
+🆕 jugsta - lose yourself 14884817551
+🆕 jugsta - fade away 14884818429
+🆕 jugsta - when im gone 14884821038
+🆕 jugsta - spacin 14884821394
+🆕 jugsta - japan 14884822465
+🆕 jugsta - batman 14884822914
+🆕 jugsta - lies 14884824647
+-------------------------------------------
+
+# Music
+6942391979 - Mexico gangster music
+6774872457 - im so alone - lil soda boi
+4835346587 - Fnaf 1 Call
+6815734998 - Hey Soul Sister (Short)
+6954430911 - Ear Tester
+6353662235 - Another Ear Tester
+7014573768 - 2007MYSPACEGIRL - TINY PANTS *WE LUVV U LIL B* 
+5278041368 - Minecraft Meme
+5196850360 - Schnek Schnek Schnek Schnek
+5195797557 - Saschnek Saschnek Saschnek Saschnek
+2646887567 - LIL BOODANG - FUCK EVERYBODY DISSIN (1 distortion)
+6924735395 - Daniel Caesar - Get You (Slowed)
+5562571171 - Suck My Dick
+6913550990 - Five Nights at Freddy's 2 Song - The Living Tombstone 
+6959629099 - Loud THX sound
+58479849 - Kevin Macleod - Movement Proposition
+6025999413 - 9+10=21
+1384859762 - Doomshop (Play it in game)
+6834218705 - Oof(Dead Sound)
+7644757406 - Arabic audio
+6670954642 - PINK GUY - DUMPLINGS
+6696294740 - Mista Frost - Glock In My Draws
+2728378904 - Idk (1 distortion)
+5228360670 - Soi Helikopter
+6529070845 - Zenorachi - Brace Yourself 
+6742463413 - AREA 21 - Spaceships
+5403217296 - You messed it up what you did spam
+6926765330 - Afroman - Because I Got High
+5278041368 - hello guys welcome to my minecraft letsplay
+142376088 - Raining tacos
+6808292148 - spanish rap 2
+7280017311 -  BING CHILING
+3543418119 - weird crash audio
+8837821236 - goofy ahh sound effects
+7024028859 - chill
+4203251375 - iphone ringtone
+6244654902 - rock
+7795812961 - the rock – face off
+7363412529 - rickroll
+10614731575 - turip ip ip
+10295099381 - thefatrat
+10295099381 - thefatrat (loud)
+9119119619 - Elevator Music(Chill)
+7266001792 - you are an idiot
+8657424213 - among us
+6966922159 - loud rap
+148635119 - fart loop
+4462859409 - loud laugh
+9128750009 - pain
+9099010120 - go a for ngga
+7702262254 - nice loud phonk
+7375687262 - screaming
+6959629099 - 16 TRACK mega loud audio
+9128952685 - she call me all the time
+7914322871 - loud fart
+8119768185 - Bing Chilling
+6770303644 - Mista Frost - Shop Junt
+8671258578 - Fortnayt ili babaji
+9059013830 - Ishowspeed - Why this game so fun chat
+6555905311 - Phonk But Short
+7019388713 - Hot Ngga (Arab Version)
+6828176320 - The Rolling Stones - Paint It, Black
+6897832025 - ISlurWhenITalk - U lose
+5854877338 - Wanna break from the ads?
+8226258239 - lungskull - ?? (Short)
+6917155909 - Playboi Carti - They tryna be cray
+4602357240 - Short Audio
+8152040158 - McDonalds Moan Sounds
+6868100434 - MYSTIC! - Peita Da Lacoste
+6765683083 - Ozuna - Caramelo
+6959548175 - Scuol4 - Thasup
+6991661856 - david shawty - dancing on the sidewalk lights flicker
+6926765330 - Afroman - Because I Got High
+4795027341 - Old Roblox Gear Sounds
+5088415726 - Random beat audio
+6945779277 - Hello people
+7097648449 - Nigger
+6681840651 - PlayBoi Carti - New Tank
+6691117911 - Bad Bunny - NETFIXXX
+5672354144 - Packing Audio
+6703926669 - Surf Curse - Freaks
+6674053789 - sadboyshaq - HEDIED. (pt.2)
+6845637094 - Juice WRLD - Legends
+6689498326 - Ayesha Erotica - Party Bitch
+6695153035 - Loggers have no life
+6695430066 - Yvngxchris - Dip
+6673004638 - Luci4 - BodyPartz
+6676732301 - Sadiszt - Mata Todos
+6680495507 - Necro - Robbery '95
+6680801893 - WHITEYE$ - ITS YA CORPSE
+6688246112 - GhostMane - Nihil
+6708444383 - Kempachii - Met Her on the Internet
+6706336813 - Axxturel - Infernal Brothers
+6778050734 - showjoe - Batman n Robin (Short)
+6781856135 - GXTHIEE - JVDGEMENT DVY
+6797341947 - Anuel AA - Street Poem
+6798152421 - Pasame La Botella - Balbi El Chamako
+6805032026 - Hatesonny - Kill Bill (Speed)
+6841685130 - Nice doomshop
+3782284357 - You fcking gy
+7886361473 - fire rap loop
+6709587570 - w rap
+6529070845 - fire ass music
+6954025463 - brazil rap
+6765683083 - brazil rap 2
+6959548175 - nice rap
+7280017311 - BING CHILING
+9128952685 - aggressive russian music loop
+7310655694 - loud loop
+5686828969 - da police they ah afteyh me
+6868493025 - spanish rap
+6808292148 - spanish rap 2
+6991661856 - loud rap
+6909980547 - w rap 2
+6788646778 - shawty so perfect
+6970996018 - russian rap
+6696294740 - nice phonk
+4698932451 - instrumental loop
+6797864253 - si na nya japanese ching chong shit
+6897832025 - weird rap
+7006487793 - cool song
+6913550990 - loop
+8837821236 - goofy ahh sound effects
+7605538183 - phonk loop
+9124780123 - miss the rage
+4822707169 - phonk loop 2
+7999878400 - phonk loop 3
+8683380188 - phonk loop 4
+7764635032 - phonk loop 5
+3868870773 - phonk loop 6
+3011327359 - phonk loop 7
+2626152169 - phonk loop 8
+4829702007 - weee are gay
+3238478423 - loud ass loop
+8832959629 - gansta loop [loud]
+9127036724 - gangsta loop
+7024028859 - chill
+5278041368 - hello guys welcome to my minecraft letsplay
+3543418119 - weird crash audio
+7019388713 - arabic audio
+6491883020 - bike engine rev
+3883789639 - tacos
+8786891922 - Zo Kill Sound
+7713890963 - annoying audio
+6724541195 - if you hate roblox
+7295116856 - annoying audio 2
+5228173823 - remix loop
+8327114160 - ph intro loud
+8965046485 - ph intro 2
+3867832585 - spanish trashtalk
+5078909573 - engine rev 2
+6973084731 - female singing
+6901063458 - female singing 2
+9043910756  female singing 3
+7023828725 - edm shit
+<:boombox:980905702648328212> **AUDIO LIST MADE AND LEAKED BY AUDIOS HEAVEN <:boombox:980905702648328212>** @everyone
+
+🌍 **UNIVERSAL/PUBLIC AUDIOS JUNE 2024 ( YOU DONT NEED TO JOIN A GROUP AND EVERYONE CAN HEAR THE AUDIOS ! )**
+---------------------------------------------
+⭐ .gg/audios
+---------------------------------------------
+
+By <@952704902453399582>  (jujufalls)
+**NEW UNIVERSAL ROBLOX IDS CREATED IN 2024**
+⬇️ playable everywhere ⬇️
+
+**<:boombox:980905702648328212> 14884816658 jugsta - motion
+<:boombox:980905702648328212> 14884817551 jugsta - lose yourself
+<:boombox:980905702648328212> 14884821038 jugsta - when im gone
+<:boombox:980905702648328212> 14884821394 jugsta - spacin
+<:boombox:980905702648328212> 14884822465 jugsta - japan
+<:boombox:980905702648328212> 14884822914 jugsta - batman
+<:boombox:980905702648328212> 14884824647 jugsta - lies
+<:boombox:980905702648328212> 15689441013 jugsta - rampage
+<:boombox:980905702648328212> 15689441541 jugsta - ball
+<:boombox:980905702648328212> 15689442404 jugsta - dejavus
+<:boombox:980905702648328212> 15689442645 jugsta - hatin
+<:boombox:980905702648328212> 15689442874 jugsta - ouuu
+<:boombox:980905702648328212> 15689449215 jugsta - rockstar
+<:boombox:980905702648328212> 15689450026 jugsta - spooky scary skeletons
+<:boombox:980905702648328212> 15689450321 jugsta - company
+<:boombox:980905702648328212> 15689451790 jugsta - part of me
+<:boombox:980905702648328212> 15689453751 jugsta - rampage (sped up)
+<:boombox:980905702648328212> 16662831606 jugsta - rampage (other version)
+<:boombox:980905702648328212> 15689453973 jugsta - manifest
+<:boombox:980905702648328212> 15689455568 jugsta - deja vus 2
+<:boombox:980905702648328212> 16190758325 jugsta - cash up
+<:boombox:980905702648328212> 16190761193 jugsta - treasury
+<:boombox:980905702648328212> 16662830706 jugsta - raining tacos (jugcore cover)
+<:boombox:980905702648328212> 16662827317 jugsta - runaway
+<:boombox:980905702648328212> 17422074348 jugsta - rampage (ai version)**
+
+
+🌍 UNIVERSAL/PUBLIC AUDIOS 2023 ( YOU DONT NEED TO JOIN A GROUP AND EVERYONE CAN HEAR THE AUDIOS ! )
+---------------------------------------------
+⭐ Tik Tok
+---------------------------------------------
+#GuestOnTop
+-------------------------------------------
+
+# Random Guy
+6216815085 - Sławomir Mentzen - filozofia XD
+6698855800 - Dumb Vocalo!d Audio
+6488191043 - Dahood Cash (TurnoroxBTW)
+4480944348 - Archived Southpark N-Word
+5520852459 - Alone Clipz Intro
+5232936807 - Subscribe to EliMad on yt! (peaceful version)
+6534745982 - Archived
+6528573580 - Boston Intro
+6657112059 - Vonzie Intro
+8297000911 - TMBust ZO
+6706301191 - Archived
+6607502058 - 6ineGloxks Intro
+6470553980 - Bajan Intro
+4829437437 - HAHAH LOOK AT THIS "COMEDIAN" HAHAHA
+6338296322 - I dont like you (deardank x lorn)
+7326197337 - Com's Intro
+3322469146 - smocze jaja w 4 gestosci (Shitpost Audio by XBLUMZ)
+6938710214 - Lil Intro
+7412785759 - 1x Base Intro
+9103321136 - DJairo Mane Intro
+9056935171 - On behalf of Cactus Jack
+7024518648 - Please give me a rainbow carpet
+1357726439 - Sadshop Intro (Oldgen but also ASS LOL)
+7499596282 - 'Beamed Kid' + intro
+6471317739 - cancel rolimons
+6775262029 - BinaricFirewall intro
+8596252313 - Bloodmafia is the worst
+2972160075 - I cant talk im on xbox
+7014815869 - Unleaked Criminal Violence Intro (OG Version)
+9075277925 - Unleaked Criminal Violence Intro (No Fade Version)
+3767811778 - iWasThisi support (Please Play In Boombox Games)
+3764975747 - iWasThisi support (QUIETER)
+6519534717 - wtf
+3330810077 - YEET! (Unleaked Meme Vers.)
+3330835447 - Still Chill (Unleaked Vers.)
+6681651017 - Salad Intro
+7261587350 - Your trash at this game
+6923258583 - DrodVampz Intro
+6962240236 - Loltayko Intro
+4727094134 - Racist
+8658752697 - Joyous x Sussy Amongus Imposter
+7385272236 - Weird Ass Threat
+6859461839 - Join Unsober
+6766945290 - 5i_xr intro
+6448672210 - Im not hacking
+
+# FAV
+8226258239 - ?? - lungskull(Short)
+6025999413 - 9+10=21
+5410082273 - All Night - Bensley
+11265148479 - Amogus Eurobeat Remix - Sirfake
+6893776529 - another cool emo song
+9044043979 - Bella Ciao(instrument)
+9044043758 - Bella Ciao(Female vocal)
+9044044341 - Bella Ciao(male vocal)
+7023635858 - Bensley Vex(TTD)
+6783714255 - BrooklyInBlood
+1838667447 - Carol Of The Bells(Bells Only)
+x9047807075 - Carol Of The Bells(Duet)
+1845571388 - Carol of the bells(Music-Short)
+1846820169 - Carol of the bells(Music)
+1838666946 - Carol of the bells(Music-Best)
+1838776351 - Carol Of The Bells(Rock)
+16190783444 - Chipi Chipi Chapa chapa
+1841342574 - Christmas 2
+1839946680 - Christmas 3(Best)
+1845305786 - Christmas 4
+903847058 - Christmas 5
+1838667764 - Christmas 6(Horror)
+1840328955 - Christmas 7
+5693336619 - Coca cola es puma(Loud)
+6753817247 - cool emo song
+1838457617 - Clair de Lune
+5409360995 - Dion Timmer(TTD)
+16190782181 - EEYUH - HR
+148635119 - fart loop
+5216610038 - FBI OPEN UP
+6070263388 - Gangstas-Paradise-Loop
+15689445000 - Generic-Battle-Theme - Generic
+121853823597214 - Gravity Falls(New)
+5278041368 - hello guys welcome to my minecraft letsplay
+1836272467 - Horror Pantomime(Piggy Book 1)
+16662831858 - IdkRemix - WahRA
+1847606521 - Im Gonna Get Up(Remix C)
+15689453529 - Invasion
+1846821461 - Jingle Bells(Christmas)
+1846490685 - Jingle Bells(Christmas - Vocal)
+1839286187 - Jingle Bells(Rock)
+1843407787 - Legong-Kraton(Indonesia)
+5216738441 - Loud 2
+6819593773 - Loud 3
+6846153394 - Loud 4
+4462859409 - loud laugh
+6942391979 - Mexico gangster music
+6911766512 - Mistake(Loud) – Nissa_Playa
+7028557220 - Motion - Rogue
+7028548115 - Move Me - Rogue
+58479849 - Movement Proposition - Kevin Macleod
+6680495507 - Necro - Robbery '95
+5410081639 - MUZZ – Spectrum
+7713890963 - NOISE
+5410086218 - Noisestorm - Crab Rave
+1255922819 - Omaewa husindiea
+6828176320 - Paint It, Black - The Rolling Stones
+16662832435 - PALA Remix - WahRA
+142376088 - Parry Gripp – Its Raining tacos
+9245552700 - Parry Gripp – TacoBot 3000
+6868100434 - Peita Da Lacoste - MYSTIC!
+14145625743 - Phonk Vol. I – Phonk't Out
+9039773093 - Prairies-Cowboy
+1848354536 - Relaxed Scene(Break In)
+7363412529 - rickroll
+6872126938 - sad song
+4481852618 - SANS
+6781116057 - Sick Flu(Best)
+15689450026 - Skeletons - jugsta
+1836271798 - Spooky Chase
+7028985831 - Stonebank – Fire(Best)
+1843407004 - Tabuh-Manuk-Anguci(Indonesia)
+6913550990 - The Living Tombstone - Five Nights at Freddy's 2 Song
+7795812961 - the rock – face off
+1846543987 - Twinkle Twinkle Little Star (A)
+7029031068 - The Language of Angels - Varien
+6917155909 - They tryna be cray - Playboi Carti
+6897832025 - U lose - ISlurWhenITalk
+1845554017 - Uptown
+5854877338 - Wanna break from the ads?
+9059013830 - Why this game so fun chat - Ishowspeed
+7266001792 - you are an idiot
+]]--
+toclipboard([[
+# FAV
+
+8226258239 - ?? - Lungskull(Short)
+1839946680 - 12 Days Of Christmas a(Christmas-Best)
+6025999413 - 9+10=21
+5410082273 - All Night - Bensley
+11265148479 - Amogus Eurobeat Remix - Sirfake
+1837565110 - Angel
+1837565396 - Angel(Instrumental)
+6893776529 - Another cool emo song
+9044043758 - Bella Ciao(Female vocal)
+9044043979 - Bella Ciao(Instrument)
+9044044341 - Bella Ciao(Male vocal)
+7023635858 - Bensley - Vex
+6783714255 - BrooklyInBlood
+6819593773 - Camera click(Loud)
+15689448519 - Can you - Din1c
+1838667447 - Carol Of The Bells(Bells Only)
+1838666946 - Carol Of The Bells(Best)
+9047807075 - Carol Of The Bells(Duet)
+1845571388 - Carol Of The Bells(Music-Short)
+1846820169 - Carol Of The Bells(Music)
+1838776351 - Carol Of The Bells(Rock)
+16190783444 - Chipi Chipi Chapa chapa
+1845305786 - Christmas Morning(Christmas)
+1838667764 - Christmas Tree(Christmas)
+1838457617 - Clair de Lune
+5693336619 - Coca cola es puma(Loud)
+6753817247 - Cool emo song
+9039773093 - Cowboy - Prairies
+6846153394 - Cyber Chainsaw(Loud)
+5409360995 - Dion - Timmer
+16190782181 - EEYUH - HR
+15689449826 - Evil Desiress - Ghosti
+7795812961 - Face off - The rock
+148635119 - Fart(Loop)
+15689447272 - Fatal Breath - IRineFrs(New)
+5216610038 - FBI OPEN UP
+1846384516 - Flavor of The Life(C)
+6070263388 - Gangstas Paradise Loop
+15689445000 - Generic Battle Theme - Generic
+5278041368 - Hello guys welcome to my minecraft letsplay
+1836272467 - Horror Pantomime(Piggy Book 1)
+16662831858 - IdkRemix - WahRA
+15689455422 - ily(Slow & Reverb) - kirkiimad(New)
+1847606521 - Im Gonna Get Up(Remix C)
+6448672210 - Im not hacking(Loud)
+393883172 - Insane Laugh(Loud)
+15689453529 - Invasion(Loud)
+142376088 - Its Raining tacos - Parry Gripp
+1846821461 - Jingle Bells(Instrument)
+1839286187 - Jingle Bells(Rock)
+1846490685 - Jingle Bells(Vocal)
+6844230235 - Loud 1(New)
+6845637094 - Loud 2(New)
+4462859409 - Loud laugh
+15689451063 - Metamorphosis - Din1c
+6942391979 - Mexico gangster music
+6911766512 - Mistake - Nissa-Playa(Loud)
+7028557220 - Motion - Rogue
+7028548115 - Move Me - Rogue
+58479849 - Movement Proposition - Kevin Macleod
+5410081639 - MUZZ – Spectrum
+6680495507 - Necro - Robbery '95
+7713890963 - NOISE(vLoud)
+5410086218 - Noisestorm - Crab Rave
+5216738441 - Obama Beatbox(Loud)
+1255922819 - Omaewa husindiea
+6828176320 - Paint It, Black - The Rolling Stones
+16662832435 - PALA Remix - WahRA
+6868100434 - Peita Da Lacoste - MYSTIC!
+14145625743 - Phonk't Ou - Phonk Vol. It
+1848354536 - Relaxed Scene(Break In)
+7363412529 - Rickroll
+6872126938 - Sad song
+4481852618 - SANS(Loop)
+1841342574 - Santa Claus Is Coming(Christmas)
+6781116057 - Sick Flu(Best)
+15689443663 - Sinistra - Shonci X HR
+15689450026 - Skeletons - jugsta
+6959548175 - Song 1(New)
+6774872457 - Song 2(Best)
+6708444383 - Song 3(Best)
+1837301317 - Speed Games
+1836271798 - Spooky Chase
+7028985831 - Stonebank – Fire(Best)
+9245552700 - TacoBot 3000 - Parry Gripp
+7029031068 - The Language of Angels - Varien
+6917155909 - They tryna be cray - Playboi Carti
+15689458182 - Twilight - ORAPS(New)
+1846543987 - Twinkle Twinkle Little Star(A)
+6897832025 - U lose - ISlurWhenITalk
+1845554017 - Uptown
+5854877338 - Wanna break from the ads?(Meme)
+9059013830 - Why this game so fun chat - Ishowspeed(Meme)
+7266001792 - You are an idiot(Meme)
+
+-- // UC
+7182144359 mf doom
+13530436461
+1846575559 - Diamonds
+1845756489 - Town Talk
+1846458016 - No More
+1840684208 - Playground of the Stars
+1838857104 - Roselita
+1842241530 - Lazy Sunday
+1837070127 - Prima Bossa Nova
+1845458027 - Smooth Nylons
+1837066593 - Easy Mover/Coffee Break
+1846457890 - Solitaire
+7505787200 WOW
+5986485937 best audio fr
+
+2746489892
+106966680207248
+6360487154
+8800086798
+5424695110
+1581780568
+1581780568
+94962042252536 - Im In Space(Slowed-Reverb) - Unknown
+
+-- // New // --
+123254195386384 - ARIA MATH PHONK REMIX(New)
+130836527222948 - Angry Birds(New)
+118939739460633 - Candyland(New)
+99297605185268 - Central Mass Array(New)
+18971126264 - Faded(New)
+137152525831719 - Glitch Vortex(New)
+97340783394934 - Harry Potter(New)
+97872482274072 - I Got No Time(New)
+83471372738525 - Its Been So Long - FNAF(New)
+104119814486082 - Never Gonna Give You Up Medley(New)
+121336636707861 - Sunburst(New)
+121281026041996 - Teddy Bear Waltz(New)
+124446121840360 - Townie Loop(New)
+96300753876311 - Undertale Last Breath An Enigmatic Encounter(New)
+
+]])
